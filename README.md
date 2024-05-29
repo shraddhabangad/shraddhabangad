@@ -6,6 +6,6 @@
 ## Projects
 
 
-## SKills
+## Skills
 
 ## Currently Working on
